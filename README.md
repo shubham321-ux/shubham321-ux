@@ -6,4 +6,5 @@
 
 🌱 I'm constantly learning and exploring new technologies to stay ahead of the curve in the ever-evolving world of web development. I'm enthusiastic about collaborating with talented teams to tackle challenging problems and bring innovative ideas to life.
 
-📫 Let's connect and collaborate on exciting projects! Feel free to reach out to me via gmail rhul472@gmail.com
+📫 Let's connect and collaborate on exciting projects! Feel free to reach out to me via gmail shubh161100@gmail.com
+
